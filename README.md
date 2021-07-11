@@ -16,3 +16,9 @@
 
 # [aetrnaaberrateFujiwara v3](https://download1505.mediafire.com/6vir2xkz5mkg/m09yt1meqh1ph3w/aetrnaaberrateFujiwara+v3.osk)
 ![](https://osu.ppy.sh/ss/16820903/0f6c)
+
+# [-__reowoTuna_v1.1_Selyu__-](https://cdn.discordapp.com/attachments/745305350269566996/863843783007404083/-__reowoTuna_v1.1_Selyu__-.osk)
+![](https://osu.ppy.sh/ss/16820921/4024)
+
+# [Aristia(Edit)](https://download2128.mediafire.com/k45mlupqzcbg/wxh5t1xfa3kpncd/Aristia%28Edit%29.osk)
+![](https://osu.ppy.sh/ss/16820707/7e78)
